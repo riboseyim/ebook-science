@@ -12,7 +12,8 @@
 https://www.gitbook.com/book/riboseyim/lincoln/details
 
 <hr>
-更多精彩内容关注公众号,[RiboseYim's Blog](https://riboseyim.github.io?product=ebook&id=roadofwriter)
+
+更多精彩内容关注公众号,[RiboseYim's Blog](https://riboseyim.github.io?product=ebook&id=science)
 
 <hr>
 
